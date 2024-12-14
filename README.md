@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Computer Engineering at University of Jaffna**
 
-- 📫 How to reach me **sathurshanath2021@gmail.com**
+- 📫 How to reach me **sathupraba@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
